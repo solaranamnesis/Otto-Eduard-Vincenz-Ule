@@ -42,6 +42,6 @@ Der Kammerrat v. Raum er fuhr 1845 am 24. Dezember von Dessau nach Tonitz. Es wa
 
 „Zwischen den letzten Häusern der Wasserstadt und Schulzenbrücke entstand hinter uns plötzlich eine große Helligkeit, welche, wie ich glaubte, von den Laternen eines hinter uns herkommenden Wagens herrührte, und ich gab deshalb dem Kutscher die Weisung, mit den unruhigen Pferden sich in acht zu nehmen, wenn dieser Wagen vorbeifahren würde. — Bevor ich mich von meinem Irrtume überzeugen konnte, überfiel uns aber ein Feuerregen, gleich einer geplatzten Rakete, der Wagen, Pferde, den Weg vor und neben uns bedeckte; derselbe hatte außerdem in Form und Gestalt die größte Ähnlichkeit mit einem großflockigen Schneegestöber, die Flocken bewegten sich leicht, und wo sie auffielen, auf Wagen, Pferde, Weg, verschwanden sie ohne Spur, ohne Geräusch und ohne Geruch. Die ganze Erscheinung dauerte nur ganz kurze Zeit und alles war wie vorher; von einem Knall, Zischen, noch sonst einem Geräusche habe ich weder vor derselben, noch nach derselben etwas gehört.“
 
-Nach dieser Beschreibung könnte man geneigt sein, das in Rede stehende Phänomen mit den Erscheinungen leuchtend herabfallender Schneeflocken zu identifizieren. So begründet ein solcher Schluß aber auch auf den ersten Anblick erscheinen
+Nach dieser Beschreibung könnte man geneigt sein, dass in Rede stehende Phänomen mit den Erscheinungen leuchtend herabfallender Schneeflocken zu identifizieren. So begründet ein solcher Schluss aber auch auf den ersten Anblick erscheinen
  
 ...
