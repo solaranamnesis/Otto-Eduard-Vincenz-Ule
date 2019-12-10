@@ -26,4 +26,16 @@ Am 21. Januar 1803 beobachtete Schmidt zu Festenberg, zwischen Bersdorf bei Bajo
 
 Die naheliegenden Schlußfolgerungen aus dieser Beobachtung wären gänzlich einwurfsfrei, wenn sich die erwähnten Personen der geringen Mühe unterzogen hätten, sich auf der Stelle an den Ort des Niederfalls zu begeben, statt dies bis zum andern Morgen aufzuschieben.
 
+Im Jahre 1819 am 13. August explodierte dicht vor den Häusern von Amherst (Massach.) eine weiße Feuerkugel. Am andern Morgen fand man eine schleimige Substanz, die nach einigen Tagen bis auf einen geringen dunkelfarbigen Rückstand verdunstete. Wieder die schleimige Masse erst am andern Morgen! Warum haben die Beobachter gewartet bis zum andern Morgen?
+
+Bei Allport (Derbyshire) fiel 1828 oder 1829 gegen Ende August oder Anfang September eine Feuerkugel auf einem Grasfelde nieder, von der Fragmente nach R. A. Smiths Analyse folgende absonderliche Zusammensetzung hatten: Schwefel 22,00, Eisenoxyd 34,09, Kohle 43,59 (spezifisches Gewicht 2).
+
+Am 6. September 1835 zwischen 12 und 1 Uhr nachts sah Koch zwischen Friemar und Gotha eine Sternschnuppe fast senkrecht herabfallen, aber in der Luft erlöschen. Kurze Zeit nach ihrem Verschwinden fiel mit heftigem Geräusch 1 m vom Beobachter entfernt, eine tellergroße, gallertartige, fettig anzufühlende Substanz, die allmählich verdunstete.
+
+Der Kammerrat v. Raum er fuhr 1845 am 24. Dezember von Dessau nach Tonitz. Es war in den Abendstunden und schon so finster, daß man nur die Chausseehaufen unterscheiden konnte, als sich ein ganz eigentümliches Phä- nomen zeigte, das v. Raumer in folgender Weise beschreibt:
+
+„Zwischen den letzten Häusern der Wasserstadt und Schulzcnbrücke entstand hinter uns plötzlich eine große Helligkeit, welche, wie ich glaubte, von den Laternen eines hinter uns herkommenden Wagens herrührte, und ich gab deshalb dem Kutscher die Weisung, mit den unruhigen Pferden sich in acht zu nehmen, wenn dieser Wagen vorbeifahren würde. — Bevor ich mich von meinem Jrrtume überzeugen konnte, überfiel uns aber ein Fcuerregen, gleich einer geplatzen Rakete, der Wagen, Pferde, den Weg vor und neben uns bedeckte; derselbe hatte außerdem in Form und Gestalt die größte Ähnlichkeit mit einem großflockigen Schneegestöber, die Flocken bewegten sich leicht, und wo sie auffielen, auf Wagen, Pferde, Weg, verschwanden sie ohne Spur, ohne Geräusch und ohne Geruch. Die ganze Erscheinung dauerte nur ganz kurze Zeit und alles war wie vorher; von einem Knall, Zischen, noch sonst einem Geräusche habe ich weder vor derselben, noch nach derselben etwas gehört.“
+
+Nach dieser Beschreibung könnte man geneigt sein, das in Rede stehende Phänomen mit den Erscheinungen leuchtend herabfallender Schneeflocken zu identifizieren. So begründet ein solcher Schluß aber auch auf den ersten Anblick erscheinen
+ 
 ...
