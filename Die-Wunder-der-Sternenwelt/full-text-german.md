@@ -7,7 +7,12 @@ Gegen Ende des November 1866 berechnete er nach diesen Prinzipien die Bahn der M
 Als Resultat ergab sich folgende Bahn der Perseus-Meteore 1866.:
 
 Durchgang durch die Sonnennähe 1866, Juli 23, 62,  
-Länge des Perihels 343° 38',
-Länge des aussteigenden Knotens 138° [133° ?] 16,
+Länge des Perihels 343° 38',  
+Länge des aussteigenden Knotens 138° [133° ?] 16',  
+Neigung der Bahnebene gegen die Elliptik 64° 3',  
+Abstand in der Sonnennähe 0,9643,  
+Umlaufszeit 108 Jahre,  
+Richtung der Bewegung: rückläufig.
 
+Sie haben hier eine vollständig kometenartige Bahn vor sich, und was das Merkwürdigste, in der nämlichen Bahn, wie dieser Sternschnuppenschwarm, Geräusch und ohne Geruch.
 ...
