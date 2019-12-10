@@ -2,6 +2,12 @@
 
 ...
 
+### Achtes Kapitel.
+
+#### Die Meteor-Asteroiden.
+
+...
+
 Gegen Ende des November 1866 berechnete er nach diesen Prinzipien die Bahn der Meteore des 10. August, indem er nach den Beobachtungen von Alexander Herschel deren Radiationspunkt in 44° Rektaszension und 56° nördlicher Deklination und als Moment des Durchganges durch die Ebene der Erdbahn den 11. August 6 Uhr morgens annahm.
 
 Als Resultat ergab sich folgende Bahn der Perseus-Meteore 1866:
